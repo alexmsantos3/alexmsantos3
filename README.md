@@ -24,5 +24,5 @@ Atualmente sou Analista de TI, atuando mais na area de suporte ao usuario, mas a
 
  :office:  &nbsp; Estou trabalhando na **Aludyne**
  <br/> 🌱 &nbsp; Buscando aprender cada dia mais sobre esse mundo fantastico de desenvolvimento
- <br/> :sweat_smile: &nbsp; Posso te ajudar com windows e o que mais eu souber em mais de 7 anos de suporte
+ <br/> :sweat_smile: &nbsp; Posso te ajudar com windows e o que mais eu souber em mais de 10 anos de suporte
  <br/> 💬  &nbsp; Sobre mim: Curto tecnologias, games God of War, CS:GO, NeverWinter, cinema, seriados no Netflix...
